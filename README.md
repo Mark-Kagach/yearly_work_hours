@@ -1,4 +1,4 @@
-## Here I track my weekly work hours. I've been doing it for several years. Usual range is 50-60 hours.
+## My weekly work hours over the years (usual range is 50-60 hours).
 
 Outlier weeks have 40 or less hours, or 70 and more. I track sit-on-my-ass-and-actually-working hours, not just being in the office. As general schedule, I very rarely take days off, as I genuinely enjoy my days!
 
